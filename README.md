@@ -1,3 +1,3 @@
 # Customer-Personality-1
 
-Mesos bambang mukidi
+Jadi ini tu cuma gimana yakk, yaa gtw deh
